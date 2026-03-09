@@ -1,0 +1,1 @@
+# Quran-Collaborative-Translation-Platform-Concept-
